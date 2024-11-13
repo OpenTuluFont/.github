@@ -29,8 +29,9 @@ If you have questions, suggestions, or feedback, please feel free to reach out t
 Thank you for using Tulu Baravu fonts and being a part of preserving Tulu script!
 
 Happy designing!
-
 Deepak, Prahlad
+
+
 ---
 **Tulu Baravu Font Foundry**
 
